@@ -2,7 +2,7 @@
 
 
 
-This Webpage Brings You To The Place Of Music, Where Users Can Create Various Drums Sounds With Just A Click On Each Drum.
+This Webpage Brings You To The Place Of Music, Where Users Can Create Various Drum Sounds With Just A Click On Each Drum.
 
 
 
